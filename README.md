@@ -1,1 +1,2 @@
 # uvod-do-studia
+AAAAAAAAAAAAAAAAA
